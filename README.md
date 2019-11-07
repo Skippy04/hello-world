@@ -1,2 +1,5 @@
 # hello-world
-The guide told me to
+
+Did you hear Yuri is having a party today?
+Who's Yuri?
+Yuritarded
